@@ -1,2 +1,2 @@
 # push-rank
-Mobile lagend gangbang
+Mobile lagend bangbang
